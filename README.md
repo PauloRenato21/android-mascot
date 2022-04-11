@@ -1,1 +1,1 @@
-# first-repository2022 (Cool !)
+# first-repository2022
